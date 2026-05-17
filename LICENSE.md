@@ -1,4 +1,4 @@
-# 
+# Avançado Adobe Premiere Pro para PC plugins é o melhor Adobe Premiere Pro para PC plugins com captura multisfonte e compressão. Seguro, confiável e otimizado para máximo
 
 
 
